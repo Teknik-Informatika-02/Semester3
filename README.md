@@ -1,2 +1,2 @@
 # Semester3
-Untuk semester 3 keseluruhan :)
+Untuk kegiatan semester 3 keseluruhan :)
